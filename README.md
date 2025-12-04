@@ -16,3 +16,4 @@ no dni fuck around i block freely
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/P9H68m6/Skyrim-logo.png" alt="Skyrim-logo" border="0"></a>
 
+.
